@@ -36,9 +36,15 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The nevv prophetical King of Barbary Or The last newes from thence in a letter vvritten of late from
+
+1. An Aduertisement to the
+READER.
+
 #####Body#####
-The nevv prophetical King of Barbary Or The last newes from thence in a letter vvritten of late from
+Laus Deo in Saphia, the 9.
+of September. 1612.GOod Sir, in most hearty
+manner I commend mee
+vnto you
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
